@@ -1,4 +1,4 @@
-#Finding Shows:
+## Finding Shows:
 
 http://pc-pdx.com/show-guide/
 
@@ -29,7 +29,7 @@ they know what they're doing.
 
 # SE Portland
 
-##Stuff to do around Ladd's Addition:
+## Stuff to do around Ladd's Addition:
 
 - Foodcartopia
   - cheap drinks at Jolly Roger dive bar on SE Madison
@@ -45,7 +45,7 @@ they know what they're doing.
 - Monday Fun Day @ Colonel Summers Park - day drinking
 
 
-##Stuff near upper Hawthorne:
+## Stuff near upper Hawthorne:
 
 - Go get Stumptown coffee on SE 46th & Division, I think this is their original store
 
