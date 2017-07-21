@@ -132,7 +132,7 @@ tho if you just want to check the area out.
 
 - Pioneer Square, take pictures with the umbrella statue for dorky tourist fun
 
-- Shigezo Izakaya, dank Japanese food! tell my old boss to fuck off
+- Shigezo Izakaya, dank Japanese food!
 
 - Waterfront Park, super cool
 
@@ -157,8 +157,7 @@ Further south is boring. Past PSU in SW is residential areas.
 
 - Escape From NY Pizza
 
-- Little Big Burger(it's ok but McMennamins is better, don't let some nerd tell
-  you that you have to try this spot)
+- Little Big Burger(it's ok but McMennamins is better, don't let some nerd tell you that you have to try this spot)
 
 - Lots of Shoppingggg
 
