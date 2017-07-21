@@ -105,8 +105,6 @@ tho if you just want to check the area out.
 
 - Tao of Tea and the Lan Su Chinese Garden p cool
 
-- 5th and Couch Parking MAX Station, buy some crack XDDD
-
 ## W Burnside and SW
 
 - Voodoo Donuts if you must
