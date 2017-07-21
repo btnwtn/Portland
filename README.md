@@ -72,7 +72,7 @@ they know what they're doing.
 
 - Sizzle Pie next door has good pizza
 
-- The D(r)oug Fir is a really good venue for music
+- The D(rug)oug Fir is a really good venue for music
 
 - Fire on the Mountain on 17th & Burnside for super good chicken wings
 
