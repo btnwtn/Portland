@@ -25,6 +25,8 @@ Really any of the bars and restaurants are good here.
 
 - The Grilled Cheese Grill is great for drunk munchies
 
+- Vita Cafe (not to be confused with Cafe Vita), great vegan food.
+
 Alberta has a ton of cool shops and restaurants too. Get a haircut at bishops
 they know what they're doing.
 
